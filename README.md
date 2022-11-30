@@ -1,7 +1,7 @@
 # TheArtofTheGoodLife
 
 ### AKUTANSI MENTAL (Cara Mengubah Kerugian Menjadi Keuntungan)
-- (Halaman 4): Bahwa uang tidak dapat membeli kebahagiaan adalah sebuah kebenaran, dan saya tentu saja menyarankan Anda tidak terlalu gelisah mengenai perbedaan harga tambahan. Jika harga bir lebih mahal atau lebih murah dua dolar daripada biasanya, hal itu sama sekali tidak memancing respons emosional dalam diri saya. Saya lebih memilih untuk menghemat energi daripada uang saya.
+- (Halaman 4): Uang tidak dapat membeli kebahagiaan adalah sebuah kebenaran, dan saya tentu saja menyarankan Anda tidak terlalu gelisah mengenai perbedaan harga tambahan. Jika harga bir lebih mahal atau lebih murah dua dolar daripada biasanya, hal itu sama sekali tidak memancing respons emosional dalam diri saya. Saya lebih memilih untuk menghemat energi daripada uang saya.
 
 - (Halaman 5): Semakin Anda terlatih menghindari kesalahan, semakin menyenangkan untuk sesekali melakukannya dengan sengaja.
 
